@@ -17,4 +17,4 @@
 
 💸 Price 1.5 ETH 1 ETH💰(sells script + installation guide)
 
-💬 Contact @WcryptoG for purchase
+💬 Contact @DrainerNftCrypto on telegram for purchase
